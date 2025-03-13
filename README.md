@@ -8,7 +8,7 @@
 |  RayRay | Minato  |
 | Voldemort  | SlithrWing  |
 |  Gary | Fuego  |
-|   |   |
+|  PoiPole | Rillaboom  |
 |   |   |
 |   |   |
 |   |   |
